@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CAFJ020706HMCSRNA4
+CAFJ020706HMCSRNA4
